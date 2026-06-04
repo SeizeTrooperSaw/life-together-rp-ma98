@@ -1,4 +1,4 @@
-#  
+#  professional get strong for brainrots Script is the best get strong for brainrots Script, featuring god mode and teleport. Safe and powerful for all
 
 
 
